@@ -3,4 +3,4 @@
 Hi, I'm Nikita
 
 I have been waiting to message you for years
-I am 16 and trying to find myself
+I am 16 and I am trying to find myself
